@@ -1,0 +1,2 @@
+# toshririq
+topshiriqlar jamlanmasi
